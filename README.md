@@ -1,4 +1,4 @@
-# IPTV Norge 2026: The Ultimate Guide to IPTV Norge
+# IPTV Norge 2026: The Ultimate Guide to IPTV Norge.
 
 **Last Updated: June 2026**
 **Reading Time: 12 Minutes**
